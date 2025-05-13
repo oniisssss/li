@@ -9,9 +9,9 @@
 
 ## 2 подзаголовок 2ур
 
-[ссылка](https://gist.github.com/Jekins/2bf2d0638163f1294637)
+[ссылка](https://koto-shef.ru/)
 
-![изображение](https://avatars.mds.yandex.net/i?id=1731001905ea43bf0a46aeb2d5542c454db2754f-10239549-images-thumbs&n=13)
+![изображение](https://www.google.com/url?sa=i&url=https%3A%2F%2Fru.pinterest.com%2Famagomedova2225%2F%25D0%25BA%25D0%25BE%25D1%2582%25D0%25B8%25D0%25BA%25D0%25B8%2F&psig=AOvVaw1R4q_Uo6Vw997dPC9wa9Df&ust=1747239722484000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCMDGla_toI0DFQAAAAAdAAAAABAE)
 
 
 код 
