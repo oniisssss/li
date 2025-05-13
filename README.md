@@ -11,7 +11,7 @@
 
 [ссылка](https://koto-shef.ru/)
 
-![изображение](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.livemaster.ru%2Ftopic%2F1173865-top-10-samye-populyarnye-kotiki-zvezdy-interneta&psig=AOvVaw2GbF9sW2rAXAdgXs9vIFdC&ust=1747239994982000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCLjDhq3uoI0DFQAAAAAdAAAAABAK)
+![изображение](https://www.google.com/url?sa=i&url=https%3A%2F%2Fmoya-planeta.ru%2Ftravel%2Fview%2Fpriroda_mnogo_tsvetov&psig=AOvVaw2Qt8pKzGlTAWnRdxGQfQdP&ust=1747240265639000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCMDmq6zvoI0DFQAAAAAdAAAAABAE)
 
 
 код 
