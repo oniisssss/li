@@ -11,7 +11,7 @@
 
 [ссылка](https://koto-shef.ru/)
 
-![изображение](![image](https://github.com/user-attachments/assets/10c475d9-3838-44b0-bbfd-df83af8c679d)
+![изображение](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.livemaster.ru%2Ftopic%2F1173865-top-10-samye-populyarnye-kotiki-zvezdy-interneta&psig=AOvVaw2GbF9sW2rAXAdgXs9vIFdC&ust=1747239994982000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCLjDhq3uoI0DFQAAAAAdAAAAABAK)
 )
 
 
