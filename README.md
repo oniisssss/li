@@ -11,7 +11,7 @@
 
 [ссылка](https://koto-shef.ru/)
 
-![изображение](https://www.google.com/url?sa=i&url=https%3A%2F%2Fmoya-planeta.ru%2Ftravel%2Fview%2Fpriroda_mnogo_tsvetov&psig=AOvVaw2Qt8pKzGlTAWnRdxGQfQdP&ust=1747240265639000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCMDmq6zvoI0DFQAAAAAdAAAAABAE)
+![изображение](https://github.com/user-attachments/assets/cd86cdef-4f9d-4c6e-882c-8868c9bcd0a2)
 
 
 код 
